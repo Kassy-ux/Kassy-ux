@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... programming 
 - 🌱 I’m currently learning ..Angular
 - 💞️ I’m looking to collaborate on .project..
-- 📫 How to reach me .. achiengogweno722@gmail.com.
+- 📫 How to reach me ..  stancyngereso4@gmail.com.
 - 😄 Pronouns: .she..
 - ⚡ Fun fact: .😂am crazy..
 
